@@ -4,7 +4,7 @@ Living in Brazil 🇧🇷
 
 You can find me on 🌎
 
-[Resend](https://www.instagram.com/doponalopes)
+📷 [Instagram](https://www.instagram.com/doponalopes)
 
 <!--
 **chrisdoponalopes/chrisdoponalopes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
