@@ -2,9 +2,9 @@
 
 💻 Software Engineer - Front-end at [Zallpy](https://zallpy.com/)
 
-🇧🇷 Living in Brazil 
+🏡 Living in Brazil 🇧🇷
 
-🌎 You can find me on 
+🌎 You can find me on
 
 ⚛️ [My site](https://doponalopes.com.br) <br>
 💼 [LinkedIn](https://www.linkedin.com/in/christopher-dopona-lopes-4218b2a7/) <br>
