@@ -1,6 +1,6 @@
 ### Hey, I'm Christopher Dopona Lopes! 👋
 
-💻 Software Engineer - Front-end at [Zallpy](https://zallpy.com/)
+💻 Lead Engineer
 
 🏡 Living in Brazil 🇧🇷
 
